@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @karanrojaria
-- 👀 I’m interested in to become a good person
+- 👀 I’m interested in to become a good person for my mom and dad.
 - 🌱 I’m currently learning c++,crypto graphic 
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 How to reach me by,,,,....
